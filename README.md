@@ -1,1 +1,1 @@
-# -Discount-ShoppingZone.github.io
+# Discount-ShoppingZone.github.io
